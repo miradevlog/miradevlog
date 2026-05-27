@@ -3,7 +3,6 @@
 🧠 Prior Marketer/UX specialist<br/>
 🚀 Aspiring Full-Stack Dev<br/>
 🖥️ I create themed websites and apps to stay consistent<br/>
-📸 I share my journey on [Instagram](https://www.instagram.com/thefairylass)<br/>
 
 
 ## 🌐 Socials:
