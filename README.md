@@ -1,7 +1,7 @@
 ## Hi, I'm Mira✨
 
 🧠 Prior Marketer/UX specialist<br/>
-🚀 Aspiring Full-Stack Dev<br/>
+🚀 Full-Stack Dev<br/>
 🖥️ I create themed websites and apps to stay consistent<br/>
 
 
